@@ -1,0 +1,2 @@
+# nghi
+nhanh sang tao
